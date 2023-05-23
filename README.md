@@ -9,3 +9,4 @@ Some of these places are closed now. We may went to a place more than one time b
 - [Jo Restaurant Fakhar Moghaddam](https://goo.gl/maps/ADvTBXxPVo5mUf5n9): 13 May 2023
 - [Jo Restaurant Bamland](https://goo.gl/maps/9wPokzwtH1bAL3Sc9): 15 March 2023
 - [Jo Restaurant Zaferaniyeh](https://goo.gl/maps/2oBgfmU2qnyYo2Xy5): 23 May 2023
+- [Berkeh Cafe Restaurant](https://goo.gl/maps/uaUmknS3Wu8mnbfX6): 17 February 2021
